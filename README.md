@@ -10,3 +10,6 @@
 ![image](https://user-images.githubusercontent.com/56901151/122679805-1fe56800-d1a1-11eb-9e36-bb97c963ca0b.png)
 ![image](https://user-images.githubusercontent.com/56901151/122679813-28d63980-d1a1-11eb-9e04-6aedcb18fcbb.png)
 ![image](https://user-images.githubusercontent.com/56901151/122679820-312e7480-d1a1-11eb-96e5-48f7f82f2751.png)
+
+### Due to the large size we arent able to upload any files on here but If you would like to view it email me at **kushthaksh@gmail.com**
+![image](https://user-images.githubusercontent.com/56901151/122679923-bd409c00-d1a1-11eb-931c-3bdcb44736ae.png)
